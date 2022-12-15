@@ -6,25 +6,42 @@
 ### [3.我的管理原则](3.我的管理原则.md) ###
 
 
+以下是三个不同的部分，可以独立阅读，也可以作为
 
+连接整体。第1部分是关于在
 
-What follows are three distinct parts that can be read either independently or as a
-connected whole. Part 1 is about the purpose and importance of having principles in
-general, having nothing to do with mine. Part 2 explains my most fundamental life
-principles that apply to everything I do. Part 3 explains my management principles as
-they are being lived out at Bridgewater. Since my management principles are simply my
-most fundamental life principles applied to management, reading Part 2 will help you to
-better understand Part 3, but it’s not required—you can go directly to Part 3 to see what
-my management principles are and how Bridgewater has been run. One day I’d like to
-write a Part 4 on my investment principles. If you are looking to get the most bang for
-your buck (i.e., understanding for the effort), I suggest that you read Parts 1 and 2, and the
-beginning of Part 3 (through the Summary and Table of Principles) which will give you
-nearly the whole picture. It’s only about 55 pages of a normal size book.
-Above all else, I want you to think for yourself—to decide 1) what you want, 2) what is
-true, and 3) what to do about it. I want you to do that in a clear-headed, thoughtful way,
-so that you get what you want. I wrote this book to help you do that. I am going to ask
-only two things of you—1) that you be open-minded and 2) that you honestly answer some
-questions about what you want, what is true, and what you want to do about it. If you
-do these things, I believe that you will get a lot out of this book. If you can’t do these
-things, you should reflect on why that is, because you probably have discovered one of
-your greatest impediments to getting what you want out of life.
+将军，与我无关。第2部分解释了我最基本的生活
+
+适用于我所做一切的原则。第3部分解释了我的管理原则
+
+他们住在布里奇沃特。因为我的管理原则只是我的
+
+适用于管理的最基本的生活原则，阅读第2部分将帮助您
+
+更好地理解第3部分，但这不是必须的，您可以直接进入第3部分了解
+
+我的管理原则以及Bridgewater的运营方式。有一天我想
+
+写一篇关于我的投资原则的第4部分。如果你想获得最大的成功
+
+我建议您阅读第1部分和第2部分，以及
+
+从第3部分开始（通过总结和原则表）
+
+几乎是整个画面。它只有一本普通大小的书的55页左右。
+
+最重要的是，我希望你自己思考，决定你想要什么
+
+是的，还有3）该怎么办。我希望你以清醒、深思熟虑的方式来做，
+
+这样你就能得到你想要的。我写这本书是为了帮助你做到这一点。我要问
+
+你只有两件事：1）思想开明，2）诚实地回答一些问题
+
+关于你想要什么，什么是真的，以及你想做什么的问题。如果你
+
+做这些事情，我相信你会从这本书中得到很多。如果你做不到这些
+
+事情，你应该反思一下为什么会这样，因为你可能已经发现了
+
+你从生活中得到你想要的东西的最大障碍。
